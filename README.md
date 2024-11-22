@@ -1,0 +1,3 @@
+- 👋 Oii, sou a Bia!
+- 👀 Sou formada em Engenharia de Computação e faço pós em Engenharia de Software
+- ⚡ Fun fact: gosto de fazer crochê e bordar em ponto cruz
